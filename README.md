@@ -1,7 +1,7 @@
 
 Comprehensive Python Cheatsheet
 bruh
-bruh
+fewfewbruh
 bruh
 fewfw
 fewfew
