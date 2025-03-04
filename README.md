@@ -1,5 +1,7 @@
 Comprehensive Python Cheatsheet
-few
+fewfw
+fewfw
+fwfew
 BRU
 fewfewH
 bruh
